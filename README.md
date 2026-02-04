@@ -1,3 +1,20 @@
 # git-learning
 Hello Odin!
-blablabla
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+mudei isso kkk
